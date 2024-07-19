@@ -62,6 +62,7 @@ By following this recipe, you can create an ideal environment for your ginger pl
 https://youtu.be/8CtYWX4H8C8?si=bITllfUuufCekKtQ
 
 ## gearbox WPA 70 Ratio 20
-https://youtu.be/IEerZOugoxE?si=bXN4Q0dvwbxTlxf8
 
+https://youtu.be/IEerZOugoxE?si=oxbGKT2W4gqiY1Rg
 
+he still used big wheel between to reduce speed. so i think 1:30 gearbox should be ok.
