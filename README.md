@@ -58,4 +58,5 @@ Step-by-Step Instructions
 https://www.bing.com/search?form=SKPBOT&q=Prepare%20the%20Soil: Mix the garden soil, cocopeat, and compost thoroughly.https://www.bing.com/search?form=SKPBOT&q=Planting: Plant ginger rhizomes about 2 inches deep in the soil mix, with the buds facing upwards.https://www.bing.com/search?form=SKPBOT&q=Watering: Keep the soil consistently moist but not waterlogged.https://www.bing.com/search?form=SKPBOT&q=Location: Place the ginger in a spot with indirect sunlight and maintain a warm temperature.
 By following this recipe, you can create an ideal environment for your ginger plants to thrive https://www.wikihow.com/Grow-a-Ginger-Plant https://thetropicalhomestead.com/what-is-the-best-soil-for-growing-ginger-full-explanation/.
 
-Are you planning to grow ginger indoors or outdoors?
+# Soil mixer 
+https://youtu.be/8CtYWX4H8C8?si=bITllfUuufCekKtQ
