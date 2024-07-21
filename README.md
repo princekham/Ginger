@@ -61,6 +61,10 @@ By following this recipe, you can create an ideal environment for your ginger pl
 # Soil mixer 
 https://youtu.be/8CtYWX4H8C8?si=bITllfUuufCekKtQ
 
+# Growing guides
+- https://abstractgardening.com/grow-bags/how-to-grow-ginger-in-a-grow-bag/
+- 
+
 ## gearbox WPA 70 Ratio 20
 
 https://youtu.be/IEerZOugoxE?si=oxbGKT2W4gqiY1Rg
